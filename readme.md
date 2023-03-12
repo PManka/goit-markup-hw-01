@@ -1,0 +1,2 @@
+japierdole
+co za gówno.
